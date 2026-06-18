@@ -1,4 +1,4 @@
-# Dialog attendance list (16/6/2026)
+# Dialog attendance list (6/16/2026)
 
 On 16 June 2026, the full attendance list for Peter Thiel's private society, "Dialog" was leaked.
 
